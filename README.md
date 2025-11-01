@@ -2,4 +2,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤiamblichus⠀or⠀miRRoR⠀⠀౨ৎ⠀⠀chronic ponytown sitter!⠀ (－_－) zzZ\
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰ა . .⠀[MY ATABOOK!](https://iambliphilos.atabook.org/) . . ໒꒱\
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₍^= w =^₎ 𐒡 here's also my [rentry]([https://iambliphilos-ponytown.carrd.co/](https://rentry.co/iamblichusphilos)) !
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₍^= w =^₎ 𐒡 here's also my [rentry](https://rentry.co/iamblichusphilos) !
